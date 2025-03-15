@@ -1,1 +1,1 @@
- https://atulnamdev56.github.io/cvproject/
+ https://atulnamdev56.github.io/cvproject
